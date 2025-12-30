@@ -1,4 +1,4 @@
-Hazbin; Sera x Carmilla (Angelicballet), Chaggi, Radiosilence, Staticmoth, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, Staticbelle.
+Hazbin; Sera x Carmilla (Angelicballet), Chaggi, Radiosilence, Staticmoth, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, Staticbelle, Cannibalshark (Rosie x vox).
 
 Helluva; Stella x barbie, Barbie x verosika.
 
