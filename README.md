@@ -2,8 +2,8 @@ Hazbin; Sera x Carmilla (Angelicballet), Chaggi, Radiosilence, Staticmoth, Radio
 
 Helluva; Stella x barbie, Barbie x verosika.
 
-Mythos/Epic; Psyche x Eros, Odypen, amphitrite x poseidon, ares x aphrodite, circylla, circpen, calypso x circe, zeus x hera, Eurydice x orpheus.
+Mythos/Epic; Psyche x Eros, Odypen, amphitrite x poseidon, ares x aphrodite, circylla, circpen, calypso x circe, zeus x hera, Eurydice x orpheus, hera x iris.
 
-Hades; Callisto x Artemis, Athena x Aphrodite, Peresephonyx, Hades x persephone x nyx, melione x scylla.
+Hades; Callisto x Artemis, Athena x Aphrodite, Peresephonyx, Hades x persephone x nyx, melione x scylla, melione x arachne.
 
 **WILL BE UPDATED**
