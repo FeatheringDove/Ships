@@ -15,4 +15,4 @@ Hades; **Callisto x Artemis**, Athena x Aphrodite, **Peresephonyx**, Hades x per
 
 
 DNI; Hermes x Ares, Hera x Poseidon, Polyvees, Radiobelle, Valdust, Staticdust, CalyOdy, Circody, Appledust, Radioapple (DNIUF), Huskerdust (IWC), Charval, Sharpwolf, Radiojoy,
-Charlastor, Stolitz (DNIUF), Vox x ANY of the angels.
+Charlastor, Stolitz (DNIUF), Vox x ANY of the angels (+ more!).
