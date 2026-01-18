@@ -1,4 +1,8 @@
-Hazbin; Sera x Carmilla (Angelicballet), Chaggi, Radiosilence, Staticmoth, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, Staticbelle, Cannibalshark (Rosie x vox), Emilute.
+
+Bolded --> My main ships I like and talk abt a lot!
+
+
+Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence, **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**.
 
 Helluva; Stella x barbie, Barbie x verosika.
 
