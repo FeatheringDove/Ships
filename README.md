@@ -4,7 +4,7 @@ Bolded --> My main ships I like and talk abt a lot!
 
 Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence, **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla.
 
-Helluva; Stella x barbie, Barbie x verosika.
+Helluva; Stella x barbie, Barbie x verosika, Seductivesmoke ( Verosika x Val ).
 
 Mythos/Epic; **Psyche x Eros**, Odypen, amphitrite x poseidon, ares x aphrodite, circylla, **circpen**, calypso x circe, zeus x hera, **Eurydice x orpheus**, hera x iris.
 
