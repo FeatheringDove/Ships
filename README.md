@@ -15,7 +15,7 @@ Bolded --> My main ships I like and talk abt a lot!
 
 
 ౨ৎ DNI; Hermes x Ares, Hera x Poseidon, Polyvees, Radiobelle, Valdust, Staticdust, CalyOdy, Circody, Appledust, Charval, Sharpwolf, Radiojoy,
-Charlastor, Vox x ANY of the angels, Blitz x Verosika (+ more!), Staticdoll, Mothdoll, Vel x ANY man, Vaggi x Alastor (or just any man in general). + More will be added !
+Charlastor, Vox x ANY of the angels, Blitz x Verosika, Staticdoll, Mothdoll, Vel x ANY man, Vaggi x Alastor (or just any man in general). + More will be added !
 
 ౨ৎ IWC; Adamsapple, Odysideon, Telecirce, Applemedia, Fallenwings. + More will be added !
 
