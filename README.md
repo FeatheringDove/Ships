@@ -2,9 +2,9 @@
 Bolded --> My main ships I like and talk abt a lot!
 
 
-જ⁀➴ ♡ Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence, **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla.
+જ⁀➴ ♡ Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence, **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla, Huskerdust, Baxstabber, Fashionbelle.
 
-જ⁀➴ ♡ Helluva; Stella x barbie, Barbie x verosika, Seductivesmoke ( Verosika x Val ).
+જ⁀➴ ♡ Helluva; Stella x barbie, Barbie x verosika, Seductivesmoke ( Verosika x Val ), Staticbee, BarbVel.
 
 જ⁀➴ ♡ Mythos/Epic; **Psyche x Eros**, Odypen, amphitrite x poseidon, ares x aphrodite, circylla, **circpen**, calypso x circe, zeus x hera, **Eurydice x orpheus**, hera x iris.
 
@@ -14,5 +14,9 @@ Bolded --> My main ships I like and talk abt a lot!
 ![tenor](https://github.com/user-attachments/assets/94e011e7-1552-4e51-afa6-16842fd422d5)
 
 
-౨ৎ DNI; Hermes x Ares, Hera x Poseidon, Polyvees, Radiobelle, Valdust, Staticdust, CalyOdy, Circody, Appledust, Radioapple (DNIUF), Huskerdust (IWC), Charval, Sharpwolf, Radiojoy,
-Charlastor, Stolitz (DNIUF), Vox x ANY of the angels (+ more!).
+౨ৎ DNI; Hermes x Ares, Hera x Poseidon, Polyvees, Radiobelle, Valdust, Staticdust, CalyOdy, Circody, Appledust, Charval, Sharpwolf, Radiojoy,
+Charlastor, Vox x ANY of the angels, Blitz x Verosika (+ more!), Staticdoll, Mothdoll, Vel x ANY man, Vaggi x Alastor (or just any man in general). + More will be added !
+
+౨ৎ IWC; Adamsapple, Odysideon, Telecirce, Applemedia, Fallenwings. + More will be added !
+
+౨ৎ DNIUF; Stolitz, Radioapple, Guitarspear (Also IWC). + More will be added !
