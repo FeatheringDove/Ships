@@ -2,7 +2,7 @@
 Bolded --> My main ships I like and talk abt a lot!
 
 
-જ⁀➴ ♡ Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence, **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla, Huskerdust, Baxstabber, Fashionbelle.
+જ⁀➴ ♡ Hazbin; **Sera x Carmilla (Angelicballet)**, **Chaggi**, Radiosilence (also somewhat IWC?), **Staticmoth**, Radiorose, Charlimy, Snakebomb, Velmilla, Velissa, Polyeden, Rosie x Lilith, Rosie x Carmilla, Lucililith, **Staticbelle**, Cannibalshark (Rosie x vox), **Emilute**, Staticapple, Zestmilla, Huskerdust, Baxstabber, Fashionbelle.
 
 જ⁀➴ ♡ Helluva; Stella x barbie, Barbie x verosika, Seductivesmoke ( Verosika x Val ), Staticbee, BarbVel.
 
@@ -17,6 +17,6 @@ Bolded --> My main ships I like and talk abt a lot!
 ౨ৎ DNI; Hermes x Ares, Hera x Poseidon, Polyvees, Radiobelle, Valdust, Staticdust, CalyOdy, Circody, Appledust, Charval, Sharpwolf, Radiojoy,
 Charlastor, Vox x ANY of the angels, Blitz x Verosika, Staticdoll, Mothdoll, Vel x ANY man, Vaggi x Alastor (or just any man in general). + More will be added !
 
-౨ৎ IWC; Adamsapple, Odysideon, Telecirce, Applemedia, Fallenwings. + More will be added !
+౨ৎ IWC; Adamsapple, Odysideon, Telecirce, Applemedia, Fallenwings, Radiostatic. + More will be added !
 
 ౨ৎ DNIUF; Stolitz, Radioapple, Guitarspear (Also IWC). + More will be added !
